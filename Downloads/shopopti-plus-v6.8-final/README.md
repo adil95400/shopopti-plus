@@ -1,0 +1,1 @@
+# Shopopti+ v6.8 Final – All-in-One eCommerce SaaS
